@@ -1,7 +1,7 @@
 # instagramtakipci
 İnstagram Takipçi Satın Al
 
-📢 Instagram Takipçi Satın Al – Hızlı ve Güvenilir Çözüm!
+📢 Instagram Takipçi Satın Al – https://takip.co
 
 Instagram’da popülerliğinizi artırmak ve daha geniş kitlelere ulaşmak mı istiyorsunuz? Instagram takipçi satın al hizmetimiz ile hesabınızı kısa sürede büyütebilirsiniz!
 
