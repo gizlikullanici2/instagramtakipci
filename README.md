@@ -14,4 +14,4 @@ Instagram’da popülerliğinizi artırmak ve daha geniş kitlelere ulaşmak mı
 
 ✅ Hemen sipariş verin ve Instagram’da yükselmeye başlayın!
 
-📌 Daha fazla bilgi için: [https://takip.co]
+📌 hemen satın almak için : https://takip.co
